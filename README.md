@@ -1,0 +1,1 @@
+# Como-Instalar-M-tricas-de-jogos-no-Linux-Distro-Ubuntu-
